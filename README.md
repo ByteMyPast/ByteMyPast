@@ -6,10 +6,10 @@ Usually chilling with friends or just vibing solo,, Always open to interactions,
 
 [Matching] The Four Tormentors;
 
-- Foxybro ; @ByteMyPast [Me]
-- Bonniebro; @sandemaews
-- Chicabro; @YxonGw1nam
-- Freddybro; I need vros github still sighh
+- **Foxybro ;; @ByteMyPast**
+- Bonniebro ;; @sandemaews 
+- Chicabro ;; @YxonGw1nam
+- Freddybro ;; I need vros github still sighh
 
 W.I.P 
 
