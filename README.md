@@ -9,9 +9,9 @@ Usually chilling with friends or just vibing solo,, Always open to interactions,
 - **Foxybro ;; @ByteMyPast**
 - Bonniebro ;; @sandemaews 
 - Chicabro ;; @YxonGw1nam
-- Freddybro ;; I need vros github still sighh
+- Freddybro ;; I need vros github still, sighh,,
 
-W.I.P 
+
 
 
 
