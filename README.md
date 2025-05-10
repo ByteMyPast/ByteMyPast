@@ -3,6 +3,7 @@
 $${\color{red}"IT'S.\space ALL.\space MY.\space FAULT."\space}$$
 
 Usually chilling with friends or just vibing solo,, Always open to interactions, don’t be shy to start a roleplay with me or the crew,, <3
+[Often In Character,,]
 
 [Matching] The Four Tormentors;
 
