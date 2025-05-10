@@ -6,7 +6,7 @@ $${\color{red}"IT'S.\space ALL.\space MY.\space FAULT."\space}$$
 
 **Please don’t copy me OR take inspo off of my skins,,**
 
-Usually chilling with friends or just vibing solo,, Always open to interactions, don’t be shy to start a roleplay with me or the crew,, <3
+Usually chilling with friends or just vibing solo,, Always open to INT, don’t be shy to start a roleplay with me or the crew,, <3
 
 
 [Matching] The Four Tormentors;
