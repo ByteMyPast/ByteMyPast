@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ByteMyPast&&label=Animatronics+Salvaged&style=for-the-badge&color=5C4F7B#)
+![](https://komarev.com/ghpvc/?username=ByteMyPast&&label=Animatronics+Salvaged&style=for-the-badge&color=5E1515#)
 
 $${\color{red}"IT'S.\space ALL.\space MY.\space FAULT."\space}$$
 
