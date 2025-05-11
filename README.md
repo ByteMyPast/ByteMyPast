@@ -13,7 +13,7 @@ Usually chilling with friends or just vibing solo,, Always open to INT, don’t 
 
 - **Foxybro ;; @ByteMyPast**,, 
 - Bonniebro ;; [@sandemaews,,](https://github.com/sandemaews)
-- Chicabro ;; [@YxonGw1nam,,](https://github.com/YxonGw1nam) ← Chicken Nugget with Zaza,,
+- Chicabro ;; [@YxonGw1nam,,](https://github.com/YxonGw1nam) ← Chicken Nugget with zaza,,
 - Freddybro ;; [@Fall1ngStars002,,](https://github.com/Fall1ngStars002)
 
 [They're so silly, I love them,, /P]
