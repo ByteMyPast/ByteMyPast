@@ -14,7 +14,7 @@ Usually chilling with friends or just vibing solo,, Always open to INT, don’t 
 - **Foxybro ;; @ByteMyPast**,, 
 - Bonniebro ;; [@sandemaews,,](https://github.com/sandemaews)
 - Chicabro ;; [@Myung-gi333,,](https://github.com/Myung-gi333) ← Chicken Nugget with zaza,,
-- Freddybro ;; [@Fall1ngStars002,,](https://github.com/Fall1ngStars002)
+- Freddybro ;; [@Fall1ngStars002,,](https://github.com/Fall1ngStars002) ← Sewer Diver,,
 
 [They're so silly, I love them,, /P]
 
